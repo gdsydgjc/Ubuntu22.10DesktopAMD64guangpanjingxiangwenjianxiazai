@@ -1,0 +1,1 @@
+# Ubuntu22.10DesktopAMD64guangpanjingxiangwenjianxiazai
